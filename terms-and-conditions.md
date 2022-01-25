@@ -377,10 +377,4 @@ In order to resolve a complaint regarding the Site or to receive further informa
 
 Quasaris
 
-3 South Sathorn Road
-
-Sathorn, Bangkok
-
-Thailand
-
 contact@quasaris.co
